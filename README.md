@@ -33,4 +33,4 @@ Lembre-se, a segurança de suas informações é nossa prioridade. Fique atento 
 
 Atenciosamente,
 
-[Gabriel Marinho dos Santos]
+Gabriel Marinho dos Santos
